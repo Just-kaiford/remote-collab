@@ -169,6 +169,11 @@ A penguin kind of slipping.
 
 Mama Bear and Baby Bear cuddle.
 
+##Quokka
+
+![Quokka Eating](https://media.giphy.com/media/xJV6h7glCnoFG/giphy.gif)
+
+A cute little Quokka snacktime
 ## Sloths
 
 ![Sleepy sloths](https://www.pbh2.com/wordpress/wp-content/uploads/2012/10/funniest-animal-gifs-sloth-chilling.gif)
